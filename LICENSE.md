@@ -1,4 +1,4 @@
-# 
+# new Script for easter tap simulator is the best easter tap simulator Script, featuring auto-upgrade and god mode. Safe and powerful for all your
 
 
 
